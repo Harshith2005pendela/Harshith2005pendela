@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Harshith pendela
 - 👀 I’m interested in learning new things.
-- 🌱 I’m currently in 11th
+- 🌱 I’m currently pursuing btech
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
